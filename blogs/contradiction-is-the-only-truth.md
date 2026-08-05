@@ -29,4 +29,4 @@ Balance between criticising for progress vs celebrating present
 
 ---
 
-[← Back to Index](../README.md)
+[← Back to Index](../README.md) | [Next Post →](inertia-of-activity.md)

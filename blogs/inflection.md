@@ -12,4 +12,4 @@ Recently, for the last 6 odd months, I let myself go. I left all the control and
 
 ---
 
-[← Back to Index](../README.md)
+[← Back to Index](../README.md) | [Next Post →](mindfulness-dementia.md)

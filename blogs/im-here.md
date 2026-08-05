@@ -24,4 +24,4 @@ Take 11/2 glass of no-fat milk. Put half inch ginger, 1 teaspoon turmeric, 5-6 c
 
 ---
 
-[← Back to Index](../README.md)
+[← Back to Index](../README.md) | [Next Post →](winning-fat.md)

@@ -47,4 +47,4 @@ But because he forgot he was playing.
 
 ---
 
-[← Back to Index](../README.md)
+[← Back to Index](../README.md) | [Next Post →](now-we-are-here.md)

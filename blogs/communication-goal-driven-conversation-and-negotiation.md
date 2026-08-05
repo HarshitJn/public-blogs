@@ -85,4 +85,4 @@ Mix of feminine and masculine, liberal and conservative, authentic and virtue si
 
 ---
 
-[← Back to Index](../README.md)
+[← Back to Index](../README.md) | [Next Post →](contradiction-is-the-only-truth.md)

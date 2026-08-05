@@ -34,4 +34,4 @@ Jo Pul banayenge - Ageya
 
 ---
 
-[← Back to Index](../README.md)
+[← Back to Index](../README.md) | [Next Post →](ateet-ke-jungle-se.md)

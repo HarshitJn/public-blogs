@@ -12,4 +12,4 @@ Signing out, in hope, to live mindfully again.
 
 ---
 
-[← Back to Index](../README.md)
+[← Back to Index](../README.md) | [Next Post →](anxiety-attachment-and-thought.md)

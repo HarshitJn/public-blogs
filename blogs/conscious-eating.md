@@ -33,4 +33,4 @@ Its been only few months and I see myself less stressed than ever, high in energ
 
 ---
 
-[← Back to Index](../README.md)
+[← Back to Index](../README.md) | [Next Post →](the-world-has-lost-its-mind.md)

@@ -40,4 +40,4 @@ Elsewhere, is learning a one-and-done thing? If you learn to be self-sufficient 
 
 ---
 
-[← Back to Index](../README.md)
+[← Back to Index](../README.md) | [Next Post →](what-is-health.md)

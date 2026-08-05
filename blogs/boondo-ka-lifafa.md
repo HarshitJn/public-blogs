@@ -33,4 +33,4 @@ Abki baar boondo ka maane samjhunga
 
 ---
 
-[← Back to Index](../README.md)
+[← Back to Index](../README.md) | [Next Post →](complaints.md)

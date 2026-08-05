@@ -20,4 +20,4 @@ samastha lokah sukhino bhavantu.
 
 ---
 
-[← Back to Index](../README.md)
+[← Back to Index](../README.md) | [Next Post →](conscious-eating.md)

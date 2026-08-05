@@ -16,4 +16,4 @@ PS: The US is going to sneeze a recession onto the world. Time to prepare.
 
 ---
 
-[← Back to Index](../README.md)
+[← Back to Index](../README.md) | [Next Post →](adulting-phase-2.md)

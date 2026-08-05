@@ -18,4 +18,4 @@ Does success bring you happiness? Someone said, its happiness that leads to succ
 
 ---
 
-[← Back to Index](../README.md)
+[← Back to Index](../README.md) | [Next Post →](poems-for-the-soul.md)

@@ -32,4 +32,4 @@ PS: When I started the blog I resolved to not write about anything factually mai
 
 ---
 
-[← Back to Index](../README.md)
+[← Back to Index](../README.md) | [Next Post →](afraid-aware-and-the-crazy.md)

@@ -14,4 +14,4 @@ Maybe the solution lies in going crazy with control. Maybe the solution demands 
 
 ---
 
-[← Back to Index](../README.md)
+[← Back to Index](../README.md) | [Next Post →](inflection.md)

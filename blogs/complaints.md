@@ -34,4 +34,4 @@ The people who never saw this magic.
 
 ---
 
-[← Back to Index](../README.md)
+[← Back to Index](../README.md) | [Next Post →](confused.md)

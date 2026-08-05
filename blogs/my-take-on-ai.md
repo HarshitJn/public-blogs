@@ -29,4 +29,4 @@ Either way, we tried. And thats everything.
 
 ---
 
-[← Back to Index](../README.md)
+[← Back to Index](../README.md) | [Next Post →](poisons-of-the-new-age.md)

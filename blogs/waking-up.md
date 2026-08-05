@@ -8,4 +8,4 @@ There's really just one way to live - by having a drive, a direction, a passion,
 
 ---
 
-[← Back to Index](../README.md)
+[← Back to Index](../README.md) | [Next Post →](my-take-on-ai.md)

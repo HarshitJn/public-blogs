@@ -14,4 +14,4 @@ PS: Thought for the day: Psychology has answers to all hows. Philosophy is where
 
 ---
 
-[← Back to Index](../README.md)
+[← Back to Index](../README.md) | [Next Post →](communication-goal-driven-conversation-and-negotiation.md)

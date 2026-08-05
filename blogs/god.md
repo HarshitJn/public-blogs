@@ -14,4 +14,4 @@ Attachment leads to suffering, so does negative attachment. Running away from so
 
 ---
 
-[← Back to Index](../README.md)
+[← Back to Index](../README.md) | [Next Post →](the-last-village.md)

@@ -18,4 +18,4 @@ Japaan me baj gaye hain baara, sayonaara..
 
 ---
 
-[← Back to Index](../README.md)
+[← Back to Index](../README.md) | [Next Post →](a-basic-courtesy.md)

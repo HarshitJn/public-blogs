@@ -8,4 +8,4 @@ Something somewhere has changed. I dont want to make it big. Maybe this present 
 
 ---
 
-[← Back to Index](../README.md)
+[← Back to Index](../README.md) | [Next Post →](scribblings-2.md)

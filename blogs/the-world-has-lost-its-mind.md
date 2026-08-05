@@ -25,4 +25,4 @@ It is not for me to ask why.
 
 ---
 
-[← Back to Index](../README.md)
+[← Back to Index](../README.md) | [Next Post →](if-i-were-a-kid.md)

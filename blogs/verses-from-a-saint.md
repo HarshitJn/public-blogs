@@ -58,4 +58,4 @@ This one is more convoluted than the others but my interpretation is that what i
 
 ---
 
-[← Back to Index](../README.md)
+[← Back to Index](../README.md) | [Next Post →](the-beauty-of.md)

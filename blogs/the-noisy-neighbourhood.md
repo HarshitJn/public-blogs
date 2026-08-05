@@ -30,4 +30,4 @@ Got polluted by the cowards.
 
 ---
 
-[← Back to Index](../README.md)
+[← Back to Index](../README.md) | [Next Post →](dissent-not-resent.md)

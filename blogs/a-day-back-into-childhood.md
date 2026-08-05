@@ -16,4 +16,4 @@ PS: I wrote this one to try my hand at writing about simple things and events an
 
 ---
 
-[← Back to Index](../README.md)
+[← Back to Index](../README.md) | [Next Post →](non-violent-communication.md)

@@ -37,4 +37,4 @@ Sukoon hoga us waqt me.
 
 ---
 
-[← Back to Index](../README.md)
+[← Back to Index](../README.md) | [Next Post →](sunset-poems.md)

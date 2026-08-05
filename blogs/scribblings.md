@@ -52,4 +52,4 @@ Every year i find myself confused more than before and i realise that its just m
 
 ---
 
-[← Back to Index](../README.md)
+[← Back to Index](../README.md) | [Next Post →](boondo-ka-lifafa.md)

@@ -16,4 +16,4 @@ Here's my twist on the Henry Ford quote: Whether you think you are enough or you
 
 ---
 
-[← Back to Index](../README.md)
+[← Back to Index](../README.md) | [Next Post →](scribblings.md)

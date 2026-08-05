@@ -12,4 +12,4 @@ Separately, today also marks a quarter of being a non-consumer of Instagram. And
 
 ---
 
-[← Back to Index](../README.md)
+[← Back to Index](../README.md) | [Next Post →](think-long-term-execute-short-term.md)

@@ -8,4 +8,4 @@ The banal morality and compassionate narcissism is the real death of pursuit of 
 
 ---
 
-[← Back to Index](../README.md)
+[← Back to Index](../README.md) | [Next Post →](the-noisy-neighbourhood.md)

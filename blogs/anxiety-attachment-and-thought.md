@@ -18,4 +18,4 @@ What this does is, it makes you feel better about yourself and the world around 
 
 ---
 
-[← Back to Index](../README.md)
+[← Back to Index](../README.md) | [Next Post →](god.md)

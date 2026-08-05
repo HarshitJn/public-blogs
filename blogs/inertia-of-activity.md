@@ -15,4 +15,4 @@ The how is pretty straightforward. You need to let go. Be okay with embracing th
 
 ---
 
-[← Back to Index](../README.md)
+[← Back to Index](../README.md) | [Next Post →](verses-from-a-saint.md)

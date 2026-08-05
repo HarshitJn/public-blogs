@@ -8,4 +8,4 @@ Something got me pondering today. On the way back home, I was having a conversat
 
 ---
 
-[← Back to Index](../README.md)
+[← Back to Index](../README.md) | [Next Post →](lies-to-a-consumer.md)

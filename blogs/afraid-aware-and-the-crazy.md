@@ -16,4 +16,4 @@ The old Ved lives out of fear. He lives to please the society, follows all the d
 
 ---
 
-[← Back to Index](../README.md)
+[← Back to Index](../README.md) | [Next Post →](won-but-lost.md)

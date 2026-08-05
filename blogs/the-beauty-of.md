@@ -18,4 +18,4 @@ Separately, something that Ive thought the most about in these last 4 months is 
 
 ---
 
-[← Back to Index](../README.md)
+[← Back to Index](../README.md) | [Next Post →](a-mind-numbing-limbo.md)

@@ -8,4 +8,4 @@ Far from the urban jungle, there is still a world which is unadulterated with th
 
 ---
 
-[← Back to Index](../README.md)
+[← Back to Index](../README.md) | [Next Post →](love-and-other-hard-things.md)

@@ -29,4 +29,4 @@ Ise fizool ka kaam kehkar mita chuke hote.
 
 ---
 
-[← Back to Index](../README.md)
+[← Back to Index](../README.md) | [Next Post →](waking-up.md)

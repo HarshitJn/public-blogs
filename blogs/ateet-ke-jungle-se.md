@@ -33,4 +33,4 @@ Par ye nazm barson tak ras degi —Ek peeda se paki hui mithaas ki tarah.
 
 ---
 
-[← Back to Index](../README.md)
+[← Back to Index](../README.md) | [Next Post →](kabhi-daakiye-ko-dekha-nahi.md)

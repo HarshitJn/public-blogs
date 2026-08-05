@@ -21,4 +21,4 @@ We should collectively strive harder to surround ourselves with positive energy.
 
 ---
 
-[← Back to Index](../README.md)
+[← Back to Index](../README.md) | [Next Post →](reward-anticipation-and-dopaminergic-activation.md)

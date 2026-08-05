@@ -12,4 +12,4 @@ I think what this also forces us to do, is to keep our emotions resolved. Be fre
 
 ---
 
-[← Back to Index](../README.md)
+[← Back to Index](../README.md) | [Next Post →](a-day-back-into-childhood.md)
