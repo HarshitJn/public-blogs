@@ -5,17 +5,29 @@
 ---
 
 Coming here after a long time, been rusty lately. Have a lot going on that I've been observing and writing personally, just not here. Thought of sharing something objective instead of a personal event.  
+
 I have been interested in and reading neurobiology and human behavioural biology for some time now. I remember few years back I got so fascinated by it that I felt understanding how brain works would be the solution to all my problems in life. I was obsessed by Brain and had half-a-mind to pursue psychology or neurobiology as a minor. Life got in way and I stopped reading. Now that I reflect back on it, I think it happened for the best. Sure, reading about the brain would have given me insights on how decisions are made and what pathways are activated by what neural subsystems but the path I ended up taking was to learn by observation of thought. Meditation gave me an easy way to understand my sense of self which now I can map to all the findings that neuroscience offers. Knowing how to plant a tree is not the same as sowing the seeds.  
+
 With that preface, I recently stumbled upon a great conversation between two of my favourites - Andrew Huberman and JB Peterson. Some great set of online lectures and podcast are growing popular in a post-covid world and I might go deeper into the rabbit hole. This blog is mostly a summary of few of the interesting ideas I found and few basics that I wanted to put down so that I can refer to and build upon from later on.  
+
 Hippocampus - memory.  
+
 Hypothalamus, Amygdala - primordial limbic system, oldest brain, fight or flight. Calls pituitaries for adrenalin.  
+
 Prefrontal Cortex - Most of the cognitive thinking, decision making, planning futures etc.  
+
 Insular Cortex - Gathers signals from the body and feeds to PFC to make decisions. Also signals vegas nerve to send signals to heart to alter heart rate.  
+
 Adrenalin is neural energy to brain like what food is the caloric energy to body. Dopamine, what is basically all the neural currency we have, is directly converted to Adrenalin.  
+
 How meditation operates - Essentially once you imbibe a meditative thinking, you 'acquire' a new set of 'rules'. PFC is where these rules are stored and executed from. When you acquire these new set of rules, your PFC projects and creates a new possible avatars applying various modes of operation it is aware of, say in a stressful situation. 'You' then pick one avatar that you finds fitting and that lives on.  Alfred Northwhite said "Purpose of thought is to let the ideas die instead of us" and I love this quote. Most of us believe that our thoughts are the problems, but instead they are the boon to prevent us from landing into difficult situations. Meditation enables you to manage those well. Although this very way of looking at Meditation as a rule engine, I believe is the most common pitfall about understanding meditation. I fell into this trap when I started meditating using the Waking Up program from Sam Harris. If you look at meditation as a set of rules and try to learn them and apply, they are worth horseshit. It is something that you imbibe into you by practicing over and over along with constant non-judgemental observation.  
+
 Neuro-plasiticity in goal driven states - It is very well observed that aster learning happens faster when you are goal driven. The reason being dopamine. It enables neuroplasticity. When an individual is in a state of anticipation, he is most happy. The time before you eat the cupcake is when you are most happy and not afterwards. The reward of anything is just moments before having it. This is called a dopaminergic activation state. When in this state, your brain is flooded with dopamine, dopamine converts to adrenaline, adrenaline is a neural fuel, neural fuel helps you learn faster. This applies everywhere. When you are driven to workout, the high reward anticipation makes your dopamine grow and you are happy but also have more neuro-plasticity to learn and grow in other areas of life. This is the reason when you start excelling at one phase in life, other areas start getting better on an auto-pilot.  
+
 Why hope is good - Hope is anticipation of something good to happen. If you continue to put efforts and keep the hope alive, it is again the dopaminergic activation state. And this is the reason, happy and succesfull people are most optimistic of all. This however doesnt work the other way round, you cant just get the end goal with just hope, it has to be backed by some sacrifice. I feel the effect of this can also be seen in people who are pessimists in general. They believe that hoping something good to happen would jinx the growth and stop them from actually achieving it. But in fact, the opposite happens. The way you think, they way you do.  
+
 Why mania is difficult - Manics are people who keep creating these avatars in their head but with a caveat that all of the possibilities seem equally good to them and they are excited about everything so much so that they loose control over reality. There's hardly any execution, they get trapped in this dopaminergic anticipation state where they keep getting the rush by inventing new future selves in their head, discussing and rambling about it with their friends but never actually manifesting any of it. Therapy in such conditions is even difficult because you're indirectly told to believe that all the good ideas popping in your head are not doing good to you.  
+
 PS: When I started the blog I resolved to not write about anything factually mainly stemming from the reason that I did not want to be wrong. But the way I see it now is that I am not making any claims to the accuracy of what I write here, its not a medical thesis. This is me speaking to blackboard with what I know, just like I would to you, if I were your friend. This perspective lightens the burden of proof and thats the exact reason I started writing. To express.  
 
 ---

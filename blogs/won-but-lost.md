@@ -5,6 +5,7 @@
 ---
 
 Story of a nagging kid  
+
 The hero of our story  
 A young kid, poor  
 Imagine Charlie from the Chocolate Factory  
@@ -16,6 +17,7 @@ Deception and lies horrify him
 Confused he rides the moral high  
 And nags about the rich  
 Hypocrites he calls them  
+
 One day beaten up for his virtue  
 He finds himself near a well of water  
 The reflection makes him see  
@@ -24,6 +26,7 @@ Trying to get the upper hand
 By neglecting the truth  
 The rules were simple  
 The stronger one wins  
+
 Resolved he gets up  
 And plays it all  
 His rights, he preaches  

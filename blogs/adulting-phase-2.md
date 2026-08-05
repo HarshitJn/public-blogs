@@ -5,21 +5,37 @@
 ---
 
 In the early 20s, almost everything is a new experience. The first job brings financial independence, and the first paycheck is exciting, even if the salary is low. Upgrading to a smartphone with new features feels significant. Social media is engaging, with new platforms and trends constantly emerging. Outings are frequent, from late-night drives to spontaneous trips. Eating at different restaurants and trying new dishes is exciting. Music discovery is an active process, with each song feeling personal.  
+
 Friendships are abundant, built on shared activities and constant communication. Dating is experimental, with different approaches to relationships. Travel is about adventure—budget trips, exploring new places, and experiencing local cultures. Festivals and birthdays are celebrated with enthusiasm. Career growth is a primary focus, with every promotion or raise feeling like a major step forward. Investments and savings are new concepts, and managing personal finance is a learning process.  
+
 By the late 20s, these experiences become routine. Job promotions and salary increments are expected rather than thrilling. Smartphones still improve, but upgrades feel marginal. Social media engagement decreases as trends feel repetitive. Going out reduces as people become busier with work and responsibilities. Food preferences stabilize, with fewer experiments. Music is still enjoyed but less actively explored.  
+
 Friendships evolve, with many becoming distant due to life changes. Dating becomes more selective, often driven by long-term compatibility rather than excitement. Travel is planned for relaxation rather than adventure. Festivals and birthdays become smaller events. Financial planning becomes structured, with a focus on stability, taxes, and long-term security. Life shifts from discovery to management, with fewer surprises and more responsibilities. Maybe its the weight of time. Or maybe its just the fucking work from home.  
+
 In other news, Marriages are failing because the gender roles are evaporated (thanks to robots and 3rd wave feminism), so you are not acknowledged/appreciated for the value you bring to the table. And we are overwhelmed by watching the “successful” lives of such a large number of people online. So the next glamourous thing you see on the social media, is what you want in your partner, forgetting the value they already bring.  
+
 Fortunately unfortunately,  comparison is not only towards the partner but also towards the self. Which is causing more and more people to feel as if they are not enough, leading to depression.  
+
 The interesting thing is that both these experiences are so sublime that even though they occur within the same individual, they occur in isolation and one does not cancel the other out. Often it just adds up. Double jeopardy.  
+
 One of the most difficult skill in life is distinguishing between truly knowing what you want and simply rejecting what comes your way out of a sense of rebellion. Sometimes, we dismiss perfectly natural and meaningful experiences—not because they don’t align with us, but because we’ve convinced ourselves that anything common must be avoided. In doing so, we risk missing out—not out of clarity, but out of pride in nonconformity.  
+
 One man’s trash could be another man’s treasure. When talking about motherhood, all Soniya talked about was financial and emotional toll it takes and all Trinetra wanted is to be a mother. You dont need to conform to the popular narrative. Today’s popular narrative is tomorrow’s outdated cliche. Do what feels right to you, unabashedly.  
+
 The world will constantly tell you to keep dreaming, the question is, would you rather awaken?  
+
 Comparison to others is a failed approach of measuring growth. But so is comparing yourself with your past. It doesn’t factor in the changes in the environment over time. The only true measure of growth is comparison against the current moment and its challenges.  
+
 The more I am thinking about it, the more its becoming very clear that Acceptance has to be the most crucial super power as an adult.  
+
 The number of problems and the sheer scope of things keeps rising in our lives. We dont realize that, as a student you would have much lesser things on your plate than later in life. And so its easy to focus on few things and excel at them. When the number of things increase, the number of things giving you trouble naturally increases. And you cant control everything. If you havent learnt the art of acceptance and making it work with what is, you will find yourself constantly reminiscing a past that will never come back. People who learn to enjoy the changes can not be beaten down.  
+
 And when you reminisce on a past, its easy to get stuck on a version of you who you think was doing great. Instead of obsessing over replicating that exact same thing, find what was the driving force behind that version of you. That will give you the insecurity of that version and where it was trying to generate its identity. See if you can replicate that drive. Accept this moment as is but also immerse yourself entirely in progressing towards something.  
+
 People will often say, accept this, have faith or be fearless. You cant do any of it without having a drive, a reason. After survival and reproduction, having a drive is the most fundamental human need: https://chatgpt.com/share/67d30d08-c890-8007-83e1-df92caf58ef6. Drive to get rich, drive to be smart, drive to know stuff, drive to get fitter, drive to look good, drive to have crazy fun, drive to be around happy people, drive to keep incrementing on all existing traits, drive to be happy, drive to find the drive, drive to be fearless, drive to buy a bigger car, drive to hustle, drive to be smart at work, drive to listen to good music, drive to find beautiful places in the city, drive to feel cool breeze, drive to have a peaceful conversation with someone, drive to laugh more, drive to see your value in world, drive to have a kid and play with him, drive to rest and watch TV, drive to get entertained, drive to feel respected, drive to be cared for.  
+
 After than you can enjoy the moment all you want. Counter to JK, my experiments have revealed that Identity is the root to all human drive. You can not kill every single fragmentation and still feel driven to live life. Yes, it will lead to suffering, but thats the reality of human condition. JK himself had a drive to educate people, which means that he found value in it, he felt that was the right thing to do, helping people. And there’s fragmentation in that as well. There’s identity in that as well.  
+
 Elsewhere, is learning a one-and-done thing? If you learn to be self-sufficient once, would you blame yourself if you find yourself needing to build that skill again? Unfortunately I did so until it hit me that most learnings will require re-learning if they are not practiced often. Our lives are constantly evolving. We are learning to navigate the new challenges and on the way some old learnings take a back seat and are forgotten. This might be one of the reasons for mid life crisis. Its natural that life brings so many changes in you from 20 to 40, that you would lose connect with certain things that worked for you before or brought you joy. And one day you start questioning yourself, where did those thought patterns go?  
 
 ---
