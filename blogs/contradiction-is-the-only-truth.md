@@ -10,7 +10,14 @@ This is precisely why I find it tough to categorize myself as a liberal or a con
 Similarly, for the longest time I have strived for authenticity. I rejected any form of pretence in my pursuit of truth. The very same thing that has helped me grow personally became a hinderance at work. Dont get me wrong, we should be authentic in our ideas at work, but our actions and speech has to be packaged with a degree of pretence that pleases others. Its good to carry truth bombs in a battlefield but not in workplace. In workplace, what is seen, sells. Even if your intentions are right and you did a lot of hard work in getting it right, if you dont let it out in a way that aligns with what other people want, you will suffer. Not only would your ideas be put down, you will get sour seeing this misappropriation in front of your eyes. So instead of striving for authenticity over pretence, strive for a balance between the two.
 The same theme carries along in communication. People are often trained to be assertive to get their point across. But they are not taught where to stop. Assertiveness has to be balanced perfectly with being agreeable lest people should start calling you a disrespectful person. Great speakers are often great listeners first. They gauge what the audience needs by first listening to them and then comes out a speech that gets automatically crafted to the audience's taste as it comes out of their mouth. Another subtle craft of a good speaker is knowing the balance between obscurity vs clarity. Not everything needs to be over explained. Rather it sometimes helps to just touch upon a thought and leave its details mystery. It appeases to audience's curiosity.
 And this idea is a common recurrence in several other dimensions
-Balance between living life inwards vs outwardsBalance between being frivolous and seriousBalance between introvertism and extrovertismBalance between asking the right question vs explaining the answerBalance between being objective vs sensingBalance between logic vs emotionBalance between using structures vs being spontaneousBalance between criticising for progress vs celebrating present
+Balance between living life inwards vs outwards
+Balance between being frivolous and serious
+Balance between introvertism and extrovertism
+Balance between asking the right question vs explaining the answer
+Balance between being objective vs sensing
+Balance between logic vs emotion
+Balance between using structures vs being spontaneous
+Balance between criticising for progress vs celebrating present
 अति सर्वत्र वर्जयेत्
 
 ---

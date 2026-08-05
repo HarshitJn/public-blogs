@@ -16,15 +16,23 @@ Which I relate to what Zahin Shah Taji, an Urdu poet born in Jhunjhunu wrote her
 मौला-मौला लाख पुकारे, मौला हाथ न आएलफ़्ज़ो से हम खेल रहे हैं, माना हाथ न आएजो पानी के नाम को पानी जाने, यह नादानी हैपानी-पानी रटते-रटते, प्यासा ही मर जाए
 -------------------------------------------------------------------------------------------
 Similar to what Kabir said here.भला हुआ मेरी मटकी फूटी रेमैं तो पनिया भरन से छूटी रेमोरी सर से टली बला
-This is something very similar to what I penned down few years back:The ropes you cling toSeeking ControlAre falling with you.Loose them and you shall be free.
+This is something very similar to what I penned down few years back:The ropes you cling to
+Seeking Control
+Are falling with you.
+Loose them and you shall be free.
 -------------------------------------------------------------------------------------------
 कबीरा कुआँ एक है, पानी भरे अनेकभांडे में ही भेद है, पानी सबमें एक।
 This subtly points to the omnism within various religions or ideoligies. There is only single awareness. Its the metaphoric collectors of the water who are corrupted and create an artificial divide. All religions when juxtaposed over each other are indifferentiable.
 -------------------------------------------------------------------------------------------
-चाकी चाकी सब कहे,कीली कहे ना कोय जो कीली से लाग रहेवाको बाल ना बांका होय
+चाकी चाकी सब कहे,
+कीली कहे ना कोय जो कीली से लाग रहेवाको बाल ना बांका होय
 This one is my favourite. Everyone moans about the grinding stones of life, No one mentions the central pivot, He who remains close to the pivot, Will be unharmed and whole. When we are close to our truest self, we dont get disturbed by any worldly challenge, because all of it is just the masqueraded reflection of our core. If we stand still in the eye of the storm, our existence will not be out of kilter even a bit.
 -------------------------------------------------------------------------------------------
-Agar katra na dariya se juda hota, to kya hota?Vahi hota jo hai, iske siva hota to kya hota?Na hone par to duniya ki nigaahein kha gayeen dhokhaJo tere maan siva koi khuda hota, to kya hota?Jo yun hota to kya hota, jo yun hota to kya hota?
+Agar katra na dariya se juda hota, to kya hota?
+Vahi hota jo hai, iske siva hota to kya hota?
+Na hone par to duniya ki nigaahein kha gayeen dhokha
+Jo tere maan siva koi khuda hota, to kya hota?
+Jo yun hota to kya hota, jo yun hota to kya hota?
 This one is more convoluted than the others but my interpretation is that what is, is. When the subject speaks about the object, it does not change any of the properties of the object. And so the truth does not need an observer, its omnipresent. Neither it requires to be said, it can onlybe felt.
 
 ---
